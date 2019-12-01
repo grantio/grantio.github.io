@@ -11,5 +11,5 @@
 * [TNT - AC/DC - Guitar Lesson (Marty Schwartz) - Easy Power Chords - YouTube](https://www.youtube.com/watch?v=uL6My14Qzwo)
 * [Honky Tonk Woman - Rolling Stones (cover) - Guitar Lesson (Party Marty) - YouTube](https://www.youtube.com/watch?v=nO6QisADV_Y)
 * [Cover of the Rolling Stone - Dr. Hook - Guitar Lesson (George Goodman) - YouTube](https://www.youtube.com/watch?v=WGH5_3Rpnn4)
-* [Cover of the Rolling Stone - Dr. Hook (cover) - Guitar Lesson (Party Marty) -  YouTube] (https://www.youtube.com/watch?v=CSAG7vx6II4)
+* [Cover of the Rolling Stone - Dr. Hook (cover) - Guitar Lesson (Party Marty) -  YouTube](https://www.youtube.com/watch?v=CSAG7vx6II4)
 
