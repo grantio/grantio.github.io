@@ -3,7 +3,7 @@
 * [Take Me Home, Country Roads Ukulele Play-Along](https://www.youtube.com/watch?v=RemypthFL8Y)
 * [Sweet Caroline with Chord Guide](https://www.youtube.com/watch?v=2mcKZKvKLL4)
 * [Margaritaville Ukulele with Chord Guide](https://www.youtube.com/watch?v=rUl8WrkVfTY)
-* [GHOST RIDERS IN THE SKY - JOHNNY CASH - UKULELE PLAY](https://www.youtube.com/watch?v=hmHmjNzn3-M)
+* [Ghost Riders in the Sky - Johnny Cash - Ukulele Play](https://www.youtube.com/watch?v=hmHmjNzn3-M)
 * [Creedence Clearwater Revival Have You Ever Seen the Rain](https://www.youtube.com/watch?v=BOtG7nH8ffE)
 * [Creedence Clearwater Revival Proud Mary Chord Chart](https://www.youtube.com/watch?v=oBpKIcZOjGw)
 * [Creedence Clearwater Revival Bad Moon Rising Chord Chart](https://www.youtube.com/watch?v=cPn43WO5ux0)
