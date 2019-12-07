@@ -9,6 +9,7 @@
 * [Creedence Clearwater Revival Bad Moon Rising Chord Chart](https://www.youtube.com/watch?v=cPn43WO5ux0)
 * [The Righteous Brothers Unchained Melody Chord Chart](https://www.youtube.com/watch?v=vCWxsGkqOjs)
 
+
 * [Coldplay - Clocks: Guitar lesson acoustic/electric - YouTube](https://www.youtube.com/watch?v=cnclLocJgX4)
 * [Serenade from the Stars - Steve Miller Band - Guitar Lesson (TheOrpheusGang) - YouTube](https://www.youtube.com/watch?v=SgIXx3N_0-U)
 * [Over the Hills and Far Away - Led Zeppelin - Guitar Lesson (Marty Schwartz) - Part 1 Acoustic Guitar - YouTube](https://www.youtube.com/watch?v=VnU_bh0dgNU)
