@@ -9,13 +9,15 @@
 * [Creedence Clearwater Revival Bad Moon Rising Chord Chart](https://www.youtube.com/watch?v=cPn43WO5ux0)
 * [The Righteous Brothers Unchained Melody Chord Chart](https://www.youtube.com/watch?v=vCWxsGkqOjs)
 
-
+---
 * [Coldplay - Clocks: Guitar lesson acoustic/electric - YouTube](https://www.youtube.com/watch?v=cnclLocJgX4)
 * [Serenade from the Stars - Steve Miller Band - Guitar Lesson (TheOrpheusGang) - YouTube](https://www.youtube.com/watch?v=SgIXx3N_0-U)
 * [Over the Hills and Far Away - Led Zeppelin - Guitar Lesson (Marty Schwartz) - Part 1 Acoustic Guitar - YouTube](https://www.youtube.com/watch?v=VnU_bh0dgNU)
 * [Over the Hills and Far Away - Led Zeppelin - Guitar Lesson (Marty Schwartz) - Part 2 Electric Guitar - YouTube](https://www.youtube.com/watch?v=0R90Nm-XfpI)
 * [I Will Follow - U2 - Guitar Lesson (GuitarLessons365) - YouTube](https://www.youtube.com/watch?v=_8o2jFKwyks)
 * [Take the Money and Run - Steve Miller Band - Guitar Lesson (Marty Schwartz) - YouTube](https://www.youtube.com/watch?v=FtFk21NlDjA)
+
+---
 * [Blister in the Sun - Violent Femmes - Guitar Lesson (Marty Schwartz) - YouTube](https://www.youtube.com/watch?v=DPSryLW9OPs)
 * [Stairway to Heaven - Led Zeppelin - Guitar Lesson (GuitarLessons365) - Part 1 Intro (First Half) - YouTube](https://www.youtube.com/watch?v=AV-0Nfslshs)
 * [Stairway to Heaven - Led Zeppelin - Guitar Lesson (Marty Schwartz) - Part 1 - YouTube](https://www.youtube.com/watch?v=iGleR_5yiaE&t=317s)
